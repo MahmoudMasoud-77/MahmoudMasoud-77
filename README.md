@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **mahmoudsaied7760@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eHRO7SXN903cXbHUClyv5EHC_b59Meyn/view?usp=sharing](https://drive.google.com/file/d/1eHRO7SXN903cXbHUClyv5EHC_b59Meyn/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
